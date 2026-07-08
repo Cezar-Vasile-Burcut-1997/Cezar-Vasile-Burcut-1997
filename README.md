@@ -42,7 +42,10 @@ Some aspects that characterize me are punctuality, honesty, perseverance and ord
 - 💬 Ask me about ... -->
 - 📫 How to reach me:
   - Gmail: cezar.vasile.burcut@gmail.com
+  - Email: vasile_cezar.burcut@yahoo.com
   - LinkedIn: https://www.linkedin.com/in/vasile-cezar-burcut1997
+  - Telegram: +40 755 735 273
+  - WhatsApp: +40 755 735 273
 - 😄 Pronouns: he/him
 <!-- - ⚡️ Fun fact: ... -->
 - ❤️ Hobbies:
