@@ -53,8 +53,8 @@ Outside my professional interests, I am passionate about reading, films and docu
   - Gmail: cezar.vasile.burcut@gmail.com
   - Email: vasile_cezar.burcut@yahoo.com
   - LinkedIn: https://www.linkedin.com/in/vasile-cezar-burcut1997
-  - Telegram: +40 755 735 273
-  - WhatsApp: +40 755 735 273
+  - Telegram: +40 758 255 875
+  - WhatsApp: +40 758 255 875
 - 😄 Pronouns: he/him
 <!-- - ⚡️ Fun fact: ... -->
 - ❤️ Hobbies:
